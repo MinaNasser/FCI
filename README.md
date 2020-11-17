@@ -1,2 +1,0 @@
-# FCI
-All Totoral
